@@ -15,15 +15,17 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-This is Chris - I’m an aspiring solution architect and cloud consultant living in Cologne, Germany.
+I'm Chris, and I'm an aspiring solution architect and cloud consultant living in Cologne, Germany.
 
 I actively support the global movement for climate justice and am a fan of all things related to technology, travel, and movies. 
 
-I'm active on [Twitter](https://www.twitter.com/chfrank_cgn), on [Instagram](https://instagram.com/chfrankcgn), and write a [blog](https://chfrank.net/wordpress/)
+I'm active on [Twitter](https://www.twitter.com/chfrank_cgn), and on [Instagram](https://instagram.com/chfrankcgn), and also write a [blog](https://chfrank.net/wordpress/).
 
 My professional home page is [here](https://chfrank.net), with all my other socials and publications.
 
+See you there - thank you!
+
 He/him/his.
 
-#fridaysforfuture #leavenoonebehind
+#fridaysforfuture #leavenoonebehind #standwithukraine
 
