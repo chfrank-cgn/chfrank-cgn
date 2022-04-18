@@ -21,9 +21,9 @@ I actively support the global movement for climate justice and am a fan of all t
 
 I'm active on [Twitter](https://www.twitter.com/chfrank_cgn), and on [Instagram](https://instagram.com/chfrankcgn), and also write a [blog](https://chfrank.net/wordpress/).
 
-My professional home page is [here](https://chfrank.net), with all my other socials and publications.
+All my other socials and publications are on my [home page](https://chfrank.net).
 
-See you there - thank you!
+See you around!
 
 He/him/his.
 
