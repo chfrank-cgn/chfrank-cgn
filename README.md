@@ -19,7 +19,7 @@ I'm Chris, and I'm an aspiring solution architect and cloud consultant living in
 
 I actively support the global movement for climate justice and am a fan of all things related to technology, travel, and movies. 
 
-I'm active on [Twitter](https://www.twitter.com/chfrank_cgn), and on [Instagram](https://instagram.com/chfrankcgn), and also write a [blog](https://chfrank.net/wordpress/); all my other socials and publications are on my home page [here](https://chfrank.net).
+I'm active on [Twitter](https://www.twitter.com/chfrank_cgn), and on [Instagram](https://instagram.com/chfrankcgn), and also write a [blog](https://chfrank.net/wordpress/); all my other socials and publications are on my home page.
 
 See you around!
 
