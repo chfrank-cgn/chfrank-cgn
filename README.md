@@ -19,8 +19,11 @@ This is Chris - I’m an aspiring solution architect and cloud consultant living
 
 I actively support the global movement for climate justice and am a fan of all things related to technology, travel, and movies. 
 
-You can follow me on [Twitter](https://www.twitter.com/chfrank_cgn), on [Instagram](https://instagram.com/chfrankcgn), or read my [blog](https://chfrank.net/wordpress/)
+I'm active on [Twitter](https://www.twitter.com/chfrank_cgn), on [Instagram](https://instagram.com/chfrankcgn), and write a [blog](https://chfrank.net/wordpress/)
+
+My professional home page is [here](https://chfrank.net), with all my other socials and publications.
 
 He/him/his.
 
 #fridaysforfuture #leavenoonebehind
+
