@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there!
 
 <!--
 **chfrank-cgn/chfrank-cgn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+This is Chris - I’m an aspiring solution architect and cloud consultant living in Cologne, Germany.
+
+I actively support the global movement for climate justice and am a fan of all things related to technology, travel, and movies. 
+
+You can follow me on [Twitter](https://www.twitter.com/chfrank_cgn), on [Instagram](https://instagram.com/chfrankcgn), or read my [blog](https://chfrank.net/wordpress/)
+
+He/him/his.
+
+#fridaysforfuture #leavenoonebehind
