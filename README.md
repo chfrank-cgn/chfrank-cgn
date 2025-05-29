@@ -25,5 +25,5 @@ See you around!
 
 He/him/his.
 
-#fridaysforfuture #leavenoonebehind #standwithukraine
+#youthforclimate #leavenoonebehind #standwithukraine
 
